@@ -1,2 +1,2 @@
 # test
-waat now arty muzo
+waat now arty muzos
